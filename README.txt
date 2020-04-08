@@ -1,0 +1,1 @@
+Me gusta esta carrera porque veo entretenido el como funcionan las aplicaciones y el computador, ver como de un parrafo de instrucciones se ejecuta todo el inicio de windows sus ventanas opciones y demas y tambien es una carrera que tiene un gran futuro pues para cualquier tecnologia se necesita programacion 
